@@ -1,4 +1,3 @@
-# Butzenscheibe.github.io
 Chris sitzt in seinem Zimmer,
 mit Tränen in den Augen.
 Er denkt an all die Jahre,
